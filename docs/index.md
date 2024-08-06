@@ -44,3 +44,7 @@ features:
 妄图通过舆论引导来维持、扩大自身利益。
 
 欢迎大家转发、传播、讨论。
+
+好奇本页面的访问次数吗？
+
+![U No. 1](https://count.getloli.com/get/@uno1?theme=gelbooru)
